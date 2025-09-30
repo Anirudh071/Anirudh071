@@ -31,7 +31,7 @@
 ---
 
 ## 🔗 Connect With Me  
-- 💼 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/anirudh071/)  
+- 💼 LinkedIn: [My LinkedIn Profile](https://www.linkedin.com/in/anirudh071/)  
    
 
 ---
